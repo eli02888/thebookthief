@@ -1,0 +1,4 @@
+- Writer (pg. 10)
+- Lived around 426 BC (pg. 10)
+- Reported that [[Darius I]] (emperor of Persia) discovered a "sweet reed" around 510 BC (pg. 10)
+	- Referring to sugar cane
